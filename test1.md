@@ -10,3 +10,12 @@ test1
 ajh
 
 koreha nande suka?
+
+aiueo
+
+kakikukeko
+
+sasisuseso
+
+kakikak
+
